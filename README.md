@@ -1,1 +1,0 @@
-# inspiration-fun-7467CDAC-Certificate
